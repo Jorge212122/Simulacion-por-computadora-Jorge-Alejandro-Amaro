@@ -1,2 +1,2 @@
-![untitled](https://github.com/Jorge212122/Simulacion-por-computadora-Jorge-Alejandro-Amaro/assets/84280097/301d6ec8-2fd6-40d1-9c21-f7525cc941c9)
-![untitled1](https://github.com/Jorge212122/Simulacion-por-computadora-Jorge-Alejandro-Amaro/assets/84280097/c7ea74e1-4882-45b2-9ef0-cda00879d267)
+![untitled](https://github.com/Jorge212122/Simulacion-por-computadora-Jorge-Alejandro-Amaro/assets/84280097/0aac09b2-95f5-4a72-a6ec-ea06fab047c2)
+![untitled1](https://github.com/Jorge212122/Simulacion-por-computadora-Jorge-Alejandro-Amaro/assets/84280097/3264f487-f538-4579-b75f-226208c0d236)
